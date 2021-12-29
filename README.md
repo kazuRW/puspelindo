@@ -1,3 +1,0 @@
-# puspelindo
-# puspelindo
-# puspelindo1
